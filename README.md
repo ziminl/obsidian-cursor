@@ -1,6 +1,7 @@
 # obsidian-cursor
 
 
+https://www.youtube.com/watch?v=nxss50uZgE0
 
 #sync
 
