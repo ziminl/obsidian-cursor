@@ -2,6 +2,7 @@
 
 https://www.cursor.com/
 
+https://obsidian.md/
 
 https://www.youtube.com/watch?v=nxss50uZgE0
 
